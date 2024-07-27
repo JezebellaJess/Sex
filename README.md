@@ -1,2 +1,1 @@
-# Sex
-Horny and explicit 
+https://qr.green-api.com/waInstance7103962650/1ba55fbe4d00431f9aab2a4c2ee2be861af7e7754bd5444198
